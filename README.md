@@ -1,9 +1,9 @@
 
 # Project Overview: Mastering Digital Marketing: A Real-World Case Study
 
-### * *Objective: This project is designed to immerse you in the dynamic world of digital marketing by applying core strategies to a real business scenario. By the end of this hands-on experience, you'll have developed practical skills in website design, search engine optimization (SEO), search engine marketing (SEM), and email marketing—all vital tools for today’s marketing landscape.* *
+### *Objective: This project is designed to immerse you in the dynamic world of digital marketing by applying core strategies to a real business scenario. By the end of this hands-on experience, you'll have developed practical skills in website design, search engine optimization (SEO), search engine marketing (SEM), and email marketing—all vital tools for today’s marketing landscape.*
 
-### * *[Project Overview](https://www.canva.com/design/DAGOaR-9XjY/Ns5tWgXNjDtLNFYmlueSdg/edit?utm_content=DAGOaR-9XjY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)* *
+### *[Project Overview](https://www.canva.com/design/DAGOaR-9XjY/Ns5tWgXNjDtLNFYmlueSdg/edit?utm_content=DAGOaR-9XjY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)*
 
 ### What You Will Gain:
 
